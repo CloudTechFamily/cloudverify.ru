@@ -1,1 +1,1 @@
-CloudVerify.ru
+https://CloudVerify.ru
